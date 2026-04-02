@@ -34,3 +34,7 @@ The final\_version file features my edits to the drafted version of the file cre
 
 3\. Add manually edited final version
 
+
+
+Video link: https://youtu.be/WY79LB3kSYg
+
